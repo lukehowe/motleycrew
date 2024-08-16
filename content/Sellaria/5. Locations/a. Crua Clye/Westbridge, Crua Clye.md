@@ -1,0 +1,31 @@
+Westbridge, [[Crua Clye]]
+Allies: [[Royal Army]]
+Enemies: [[Froiji Supremacy]]
+Key Figures: Captain Ker Stakask ([[Royal Army]] Captain of Westbridge), Elmar Lialar (Headmaster of Bard's College), Arthur Cleves (Author of [[Slerk's Tale]]), Uncle Shoy Seziz ([[King Kayron Jaiross]]'s Uncle), Aunt Cei Seziz ([[King Kayron Jaiross]]'s Aunt), Cousin Fal Seziz ([[King Kayron Jaiross]]'s Cousin), Walter McKinnon (Vampire's brother), Lord Alaric / Frederick McKinnon (Vampire)
+
+## Overview / Plaques
+Entry 1, The Rise of [[Eastbridge, Crua Clye|Eastbridge]]: Eastbridge, a grand city standing proudly on the eastern side of the [[Great Bridge, Crua Clye|Great Bridge]], just off of the often-travelled [[Ablus Highway Ruins, Crua Clye|Ablus Highway]] that connects the cities to the neighboring country, boasts a rich history over 200 years old. The stories speak of the city's founding by a band of human settlers seeking harmony and prosperity fueled by a hunger for exploration after seeing a meteor fall off in the distance. Just on the Bay of Storms, the city quickly became a starting point for the men of all races under the Jaiross name to launch themselves westward into the unexplored expanse. The city was quickly filled with artisans and workers looking to make coin with their skills. 
+
+Entry 2, The [[Great Bridge, Crua Clye|Great Bridge]]: A marvel of engineering that connects [[Westbridge, Crua Clye|Westbridge]] and [[Eastbridge, Crua Clye|Eastbridge]] is known as the [[Great Bridge, Crua Clye|Great Bridge]]. Its construction was a testament to human ingenuity and elven craftsmanship. Built with immense stone arches and adorned with intricate carvings depicting the story of Jaiross and his men exploring their way to the Bay of Storms, the bridge spanned the wide river that separated the two cities (although [[Westbridge, Crua Clye|Westbridge]] was just a collection of tents at this point). Its completion not only facilitated trade and communication but also symbolized the massive feat of accomplishment that the people of [[Crua Clye]] had acquired. 
+
+Entry 3, The Rise of [[Westbridge, Crua Clye|Westbridge]]: Westbridge, the city of towering stone spires and pillars, standing proudly on the opposite side of the great bridge, emerged as a busy city of hard working citizens. Early on in the founding of the cities, the western side of the bay was found to have sandy soil, as it is in close proximity to the deserts around what would become [[Craterholm, Crua Clye|Craterholm]]. For that reason, the skilled artisans that were working their trades across the bridge in [[Eastbridge, Crua Clye|Eastbridge]] remained there, whereas the more rich, white collar residents built their homes in [[Westbridge, Crua Clye|Westbridge]]. Within 2 years or so, the majority of the city was built into distinct districts that served as housing for different types of work such as smithing, woodworking, etc., while also serving as the source for different living services such as food, drink, and entertainment. [[Westbridge, Crua Clye|Westbridge]] quickly gained renown as the realm's foremost center of grand living after the measly origins of the settlement. 
+
+Entry 4, The Power Struggles of [[Westbridge, Crua Clye|Westbridge]]: Within the walls of Westbridge, noble houses vied for influence and control over the city. The annals of history bear witness to the intense political rivalries, secret alliances, and bitter feuds that unfolded behind closed doors. Ambitious lords and cunning ladies engaged in subtle machinations, using wealth, connections, and even magical artifacts to secure their grip on power. The rise and fall of these noble houses shaped the course of [[Westbridge, Crua Clye|Westbridge]]'s history, leaving a lasting impact on the city's identity, and also to the downfall of the Vaknan neighborhood of [[Westbridge, Crua Clye|Westbridge]]. 
+
+Entry 5, The Shadow War: In the shadows of [[Westbridge, Crua Clye|Westbridge]] and [[Eastbridge, Crua Clye|Eastbridge]]'s intertwined history, a covert conflict known as the Shadow War unfolded. Veiled in secrecy, spies and agents operated in a clandestine dance of espionage, gathering intelligence and undermining each other's ambitions. This hidden rivalry, born from ideological differences and the thirst for dominance, shaped the technological and magical advancements of both cities. Though concealed from the public eye, the Cold Shadow War cast an air of mistrust over the relationship between [[Westbridge, Crua Clye|Westbridge]] and [[Eastbridge, Crua Clye|Eastbridge]], leaving a lasting legacy that continues to influence the delicate balance of trust and suspicion that defines their interaction. 
+
+Entry 6: The Prophecies of Doom Through the ages, whispers of ancient prophecies have haunted both [[Westbridge, Crua Clye|Westbridge]] and [[Eastbridge, Crua Clye|Eastbridge]]. These prophecies foretell of a cataclysmic event between humans that threatens to plunge the cities into darkness and despair. Heroes would be called upon, armed with enchanted weapons and mystical powers, to face the looming threat and protect their beloved city. The tales of these valiant champions, battling against overwhelming odds, remain etched in the memories of both cities, reminding all of the indomitable spirit that unites [[Westbridge, Crua Clye|Westbridge]] and [[Eastbridge, Crua Clye|Eastbridge]] in times of peril.
+
+## The Land
+Departing from the sandy deserts of Eastern Crua Clye, the infertile soil of the Western banks of the Bay of Storms is where the workers who found their trades across the Great Bridge built their homes.
+
+## Notable Places
+- 7 Star Bar (Inn / Tavern)
+- Frozen Fork (Inn / Tavern, DESTROYED)
+- City Hall (DESTROYED)
+- Bard's College (DAMAGED)
+- Bank
+- Church of Vigius
+- Church of Milil
+- Church of Xovdos
+- Vaknan Neighborhood

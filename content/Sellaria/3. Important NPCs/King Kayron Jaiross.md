@@ -1,0 +1,5 @@
+Kayron Jaiross
+King of [[Crua Clye]]
+[[Crua Clye]]
+
+The leader of [[Crua Clye]] is a king by the name of [[King Kayron Jaiross]], who is a 20 year old male human. He is the son of Bayron Jaiross, a king who found himself in a rather inactive period of the country. Bayron garnered a hatred for the throne, and grew depressed, unwanting to rule. Due to this, Kayron grew up not experiencing a lot of the politics of the throne. As a boy, Kayron was more intrigued with the life of a knight, and he trained with weapons and armor accordingly. When Kayron was 9, his mother passed due to illness. One day, when Kayron was about 10 years old, Bayron threw himself from the top of the Throne Room one day when his depression won. 3 years later, when Kayron was 13, his two eldest twin brothers dueled each other over a private argument they had regarding the death of their father. They both slayed each other, leaving Kayron the youngest living Jaiross and the new king of [[Crua Clye]]. His grandfather Baygal counseled him until his recent death earlier this year.

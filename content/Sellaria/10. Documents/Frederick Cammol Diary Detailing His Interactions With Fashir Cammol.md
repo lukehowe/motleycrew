@@ -1,0 +1,5 @@
+Entry 1: Just earlier today I met the most fascinating man. A man with the surname Cammol. I typically find myself spending my time with the most vile men around - one of the few things I can do to entertain myself in this boring life. He gave me what he called Sunburn, a special herb mixture his brother used to make. It gave me the most euphoric high. He told me he could make my life more entertaining than ever before. 
+
+Entry 2, just a few days later: That foul bitch Serenity Starsk. I have given her coin after coin and done nothing but be there for her. How can she not see I am the one for her? She needs to love me. She will love me. She needs to stop acting like she doesn't love me. She wants me more than I want her. 
+
+Entry 3, just two days later: Fashir Cammol , or Lord Alaric as I should call him, as finally left the city to me. He took 3 of our servants with him; that's fine. Soon enough, this entire city will serve me. I'm more powerful than Walter will ever be. And once I reunite with Lord Alaric in Willowdale, we will be more powerful than the entire realm.

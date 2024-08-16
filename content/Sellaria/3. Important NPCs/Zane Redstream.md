@@ -1,0 +1,11 @@
+Zane Redstream (DECEASED)
+Leader of the [[Gold Tear Gang]], Ex-student from [[Uchon Institute of Learning, Uchon|Uchon Institute of Learning]]
+[[Consteltown, Crua Clye]]
+
+Zane Redstream began attending the [[Uchon Institute of Learning, Uchon||Uchon Institute of Learning]] at the young age of 18 as an aspiring mage. Eager to learn about magical artifacts, rare spells, and even some potion-making, his first semester went well. However, there was a sludge of resentment building within him. Inside and outside of his classes, he would see professors and students alike using magical artifacts around the school as toys, as he saw it. Within time, he decided to start a personal side project along with his classes - to collect as many artifacts as possible and hide them away from the irresponsible dogs around him. 
+
+After another semester, Zane had collected a few artifacts he was able to snag away from the prying eyes around him. He eventually decided that the only way the school would be 100% safe is to destroy the items he had stolen. So, Zane begin studying. After a few weeks of digging in the library and speaking indirectly to his professors and peers, Zane finally landed on a method to rid the items of their magic. He attempted an obscure ritual detailed in an old tome within the library, however, the item fought back, alerting the professors of the school that something was wrong. His stash of magical items was discovered, and Zane was expelled from the school.  
+
+Still magically talented and powerful, Zane eventually learned of the [[Gold Tear]] that was hidden beneath [[Consteltown, Crua Clye]], and the mercenaries ([[Gold Tear Gang]]) that protected it. He found his way there, and joined the group, hoping to protect the artifact from any irresponsible hands, quickly climbing his way to the top with the use of his powerful magic. Eventually, Behegu formed his plan for control, and decided to use Zane as an extremely useful pawn piece.
+
+Zane stayed behind in [[Consteltown, Crua Clye]] during the Second Battle of the Institute, and was killed by the [[Motley Crew]] within the [[Gold Tear]] Cave.

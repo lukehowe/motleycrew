@@ -1,0 +1,1 @@
+An M+2 set of armor made by [[Boron]] after defeating the Cosmic Monsters in Sandcrater.

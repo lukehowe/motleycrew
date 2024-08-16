@@ -1,0 +1,2 @@
+## Overview
+The majority of the Underdark below [[Crua Clye]] consists of the Glimmersea domain, which is large and cavernous like the rest of the realm, but once in the Middledark, the majority of the space is flooded with salt water. The rocks that are the roof of the realm are lined with quartz and other gems, creating a shimmering effect that resembles stars.

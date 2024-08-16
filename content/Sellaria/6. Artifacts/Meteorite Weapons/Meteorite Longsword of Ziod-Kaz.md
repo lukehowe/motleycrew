@@ -1,0 +1,1 @@
+The original Meteorite Longsword forged and wielded by Ziod-Kaz after he and his men conquered the Treecrater.

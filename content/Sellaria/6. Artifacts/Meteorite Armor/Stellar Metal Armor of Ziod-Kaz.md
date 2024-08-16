@@ -1,0 +1,1 @@
+An M+0 set of armor made by the legendary [[Ziod-Kaz]] of the meteorite fragments from [[Treecrater, Crua Clye]]. Borrowed by [[Vorax]].

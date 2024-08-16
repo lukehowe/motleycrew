@@ -1,0 +1,1 @@
+Giant Stone Tablet reads: "Here lies Bumalog II, Old King of Giant"

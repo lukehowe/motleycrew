@@ -1,0 +1,1 @@
+I'm considering taking [[Farpip Darkback||Farpip]] to [[Consteltown, Crua Clye||Consteltown]]. The [[Gold Tear]] that is present within the caves could possibly allow [[Farpip Darkback||Farpip]] to showcase the natural ability to manipulate the Weave I have recently suspected him of having. I will look into fare on a ship from the city of [[Starhaven, Uchon||Starhaven]].
