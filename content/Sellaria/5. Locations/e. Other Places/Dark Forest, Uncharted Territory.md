@@ -1,3 +1,5 @@
+## ![[Dark Forest.png]]
+
 ## Overview
 The Dark Forest is a deep, dark expanse of tall, dark leaved trees that runs up and down the west border of [[Crua Clye]]. It consists of relatively normal forest features, but the fact that it hosts several evil monsters makes it a special forest. The leaves of the tree canopy nearly block out all sunlight within this forest. 
 
