@@ -1,17 +1,21 @@
 ## Current Threads
 
 **Harnessing the Weave**
+
 2. After arriving in [[Consteltown, Crua Clye]] and discovering the [[Gold Tear]], I entered the Weave Realm. It seems natural, undisturbed, magical artifacts could be the gateway. Where is more of these artifacts?
 
 **Cleansing the Institute**
+
 7. Exploring the [[Sylvandelta, Uchon||Sylvandelta]], I found a desecrated cave that Behegu would visit that held an altar that would steal/teleport magical items that made contact with it. The cave also displayed a projection of Demogorgon, a demon prince. How is it connected?
 
 ## Personal Quests (Completed)
 
 **Harnessing the Weave**
+
 1. My master Adrugeor told me he hypothesized that the Weave Realm, a subplane of the Material consisting of raw arcane energy, could be traversable. ~~But what was the key?~~
 
 **Cleansing the Institute**
+
 1. The [[Uchon Institute of Learning, Uchon||Institute]] was attacked by a group of raiders, including two twin Half-Orcs, who were all searching for an Efreeti Bottle. ~~Why?~~
 2. I met Raslin Silvergem in [[Treecrater, Crua Clye]], a student who mentioned Xanovar, a supposed graduate student that held a strong hatred for the [[Uchon Institute of Learning, Uchon||Institute]]. ~~Could he be behind the attacks?~~
 3. I met Xanovar in [[Jaiross, Capital of Crua Clye]], tipping me off to [[Zane Redstream]], leader of the [[Gold Tear Gang]]. Where could he be?
