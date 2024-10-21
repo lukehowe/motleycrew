@@ -1,25 +1,32 @@
 ## Current Threads
  **The Mosquitos**
- 6. The people of [[Craterholm, Crua Clye]] flee their city after [[Froiji Supremacy]] attacks and take refuge among the [[Mosquitos]]. They await further orders.
+ 
+ 1. The people of [[Craterholm, Crua Clye]] flee their city after [[Froiji Supremacy]] attacks and take refuge among the [[Mosquitos]]. They await further orders.
 
 **A Giant Problem**
+
 3. [[Clan Tigfum]] awaits the [[Motley Crew]]'s orders to attack.
 
 **The Black Company**
+
 2. After several conflicts, the [[Black Company]] fled to the [[Froiji Supremacy]].
 
 **Meteorite Mishaps**
+
 5. [[Paeris Ianric, The Maker, Inventor of Froiji||The Maker]] writes in his [[Paeris Ianric Diary||diary]] that the rumored "site" could be the cause of the increasing heat.
 6. [[Okirk]], the world famous Meteorite Blacksmith, has disappeared in the [[Goblin Fields, Uchon]].
 
 **The Illithilich**
+
 5. The [[Illithilich]] lays low for some time before appearing during the Second Battle for the Institute, distorting the very bridges and walkways of the Institute, stealing the Magma Compass, and leaving. Where did he go?
 6. It appears there are flayers that are now loyal to the [[Illithilich]].
 
 **All Knowing Rock**
+
 1. The [[Rockpile Raiders]] have requested that the [[Motley Crew]] transport their Holy Rock, that actually happens to know quite a lot, to its resting place somewhere underground, south of the [[Goblin Fields, Uchon]].
 
 **The Boy King**
+
 7. The [[Froiji Supremacy||Froiji]] army begins raiding towns like [[Consteltown, Crua Clye]] and [[Craterholm, Crua Clye]] demanding gold taxes and the such. They have a heavy presence underneath the [[Ghosts of Jaiross]], stopping significant threats such as the neothelid, and poking into the crater the Fortune Comet left behind, mining meteorite where a sleeping cosmic dragon snores.
 
 ## Completed Quests
